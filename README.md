@@ -1,1 +1,1 @@
-# Practica-Supervisada-Computaci-n-
+# Practica-Supervisada-Computación-
